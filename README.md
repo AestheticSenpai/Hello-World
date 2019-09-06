@@ -11,3 +11,5 @@ Just gonna try to write 1 commit a day, it'd be cool to code, but don't know whe
 Maybe this can turn into a journal type lol. If anyone sees this they will be so confused haha. 
 I checked the btc ann and that cpuminerdev guy accused cryptozenny of having an alt account to MY comment LOL 
 Discord chat was added and we got a new pool so that is cool, though perhaps more people will join now but that can be a good and bad thing. 
+---------------------------
+Oh boy was yesterday an eventful day, the word is out, the gloves are off. Mink aka cpuminerdev has been exposed and rightfully so. Now time to be on the defensive and try to look out for fake btc ann posts or report anns by him saying calling others and us a scam. 
