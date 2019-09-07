@@ -13,3 +13,5 @@ I checked the btc ann and that cpuminerdev guy accused cryptozenny of having an 
 Discord chat was added and we got a new pool so that is cool, though perhaps more people will join now but that can be a good and bad thing. 
 ---------------------------
 Oh boy was yesterday an eventful day, the word is out, the gloves are off. Mink aka cpuminerdev has been exposed and rightfully so. Now time to be on the defensive and try to look out for fake btc ann posts or report anns by him saying calling others and us a scam. 
+---------------------------
+Wow have things taken for the worst. M?nk guy is crazy, the discord is gone, my and zenny's discord accounts are gone, now telegram became temporary home and plan is to move to new forum, it is 3:27. Later tonight around 10pm is morning 8am in Russia, final tweaks are to be made and it will be done. 
