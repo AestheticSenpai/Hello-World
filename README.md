@@ -17,3 +17,5 @@ Oh boy was yesterday an eventful day, the word is out, the gloves are off. Mink 
 Wow have things taken for the worst. M?nk guy is crazy, the discord is gone, my and zenny's discord accounts are gone, now telegram became temporary home and plan is to move to new forum, it is 3:27. Later tonight around 10pm is morning 8am in Russia, final tweaks are to be made and it will be done. 
 ---------------------------
 Forum is up and i have not seen activity about m?nk on btc ann for a while, the forum looks really great 
+---------------------------
+Everything seems calm....for now
